@@ -30,7 +30,7 @@
 <details>
 <summary>Main Interests (Click to expand)</summary>
 
-SPN, TLoU, BSD, One Piece, Resident Evil, JJK.
+SPN, TLoU, BSD, One Piece, Resident Evil, JJK, MHA.
 </details>
 
 <details>
